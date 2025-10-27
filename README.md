@@ -1,1 +1,1 @@
-# ako
+czesc pozdrawiam
